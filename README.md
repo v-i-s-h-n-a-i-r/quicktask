@@ -52,6 +52,8 @@ w
 ### niggga [lslpplpslpsldpswkeflkef]
 ## fickin fickin fickin
 # NIGGGGGAGAGAGAGAGAGAGAGAGAAG
+# YOU FUCKIN DICK
+# WORK BEFORE I FUCK YOU UP 
 
 ## BEOTCH 
 # NIGGGGGGGGGGGGGGGAAAAAAAAAAAA
